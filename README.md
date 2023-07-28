@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MindistriHA (you can just mindistri).
+- 👀 I’m interested in: Interested in football, programming, web design.
+- 🌱 I’m currently learning: The maximum I can say is that I'm really studying now.
+- 💞️ I’m looking to collaborate on: I prefer to be alone.
+- 📫 How to reach me: [discord: mindistri]; [telegram: @Mindistri]
